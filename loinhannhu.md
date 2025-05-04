@@ -2,7 +2,7 @@
 
 *Commit nhầm thì rebase.*
 
-*Nhưng ảnh dìm lớp 10A3…*
+*Nhưng ảnh dìm tôi chụp*
 
 **Là forever."**
 
